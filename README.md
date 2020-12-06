@@ -1,2 +1,3 @@
-# d-nya
+dunya
 çözüldü
+sıkıntılar biter
